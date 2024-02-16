@@ -5,14 +5,6 @@
 - ⚡ Fun fact: I speak better Spanish than Korean
 - 🔥 Interests: Cars/planes, tech, food/cooking, languages & comedy
 - 📫 How to reach me: LinkedIn, Email
-- 
-                                        |
-                                        |
-                \   /     \   /        ____        \   /     \   /
-      --==========O=========O========/ 0000 \========O=========O==========--
-                / - \     / - \     | o0  0o |     / - \     / - \
-                                    /\_ -- _/\
-                                    0   00   0
 
 <!---
 Jkim1122/Jkim1122 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
